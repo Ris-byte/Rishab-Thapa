@@ -1,2 +1,0 @@
-# Rishab-Thapa
-Rishab Thapa
